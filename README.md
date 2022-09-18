@@ -2,4 +2,4 @@
 
 https://t.me/prOiNsulterBot
 
-https://acidfreakz.pythonanywhere.com
+https://evilinsult.cf
